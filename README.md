@@ -1,6 +1,6 @@
 # weitong
 
-## 微同APP，微同网，还有微同视频 的备用网址
+## 微同APP，微同网，还有微同视频 的永久网址备用网址发布页
 
 
 - https://weitong.ink 	WeiTong Best Gay Movies Of Asia
